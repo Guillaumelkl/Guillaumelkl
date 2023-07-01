@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi, french you guy that love to code and see it as a journey to grow and be better i believe in practicing to make better code each time .<br>
+Hi, french  guy that love to code and see it as a journey to grow and be better i believe in practicing to make better code each time .<br>
 
 
 ## 🌐 Socials:
